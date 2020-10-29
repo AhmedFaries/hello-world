@@ -7,3 +7,4 @@ I like programming and I'm eager to change my career path to be a sotware engine
 I believe that the future is much better with new technologies that requires continuous development.
 Thanks God.
 Wie haben  viel gemeinsam.
+Gesundheit!!!!
